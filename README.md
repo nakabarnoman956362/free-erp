@@ -4,6 +4,7 @@
 
 一款好用的ERP管理系统能显著提升企业管理效率，在众多ERP系统中，如何选择一款免费的ERP管理系统呢？本文整理了2025年非常实用的免费版ERP系统推荐。
 
+![free erp](https://github.com/user-attachments/assets/6131024d-b437-4832-bda7-b7bccdc2f287)
 
 ---
 
